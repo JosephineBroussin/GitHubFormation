@@ -7,3 +7,6 @@
 - N'avez-vous donc aucune intention d'aider les moutons ?
 - oui et toi ?
 *Grégoire left the chat*
+
+- Ca devient compliqué
+- Mais ça va 
